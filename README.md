@@ -1,0 +1,4 @@
+Domain: Event Planning
+
+Miro board:
+https://miro.com/welcomeonboard/RWFLZXZlZDZNSEVhYmNzTFF2ZXpBSFhmVzFhY01sTDl3SnRvekI0NTUyNlREWDdWa0w1VWpFcTlPU0pDWUc2VHwzNDU4NzY0NTc0ODcwNTg1ODQwfDI=?share_link_id=155654523258
